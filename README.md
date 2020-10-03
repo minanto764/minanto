@@ -1,0 +1,2 @@
+# minanto
+Pengetahuan itu geratis
